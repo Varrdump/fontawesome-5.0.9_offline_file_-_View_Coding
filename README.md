@@ -6,3 +6,6 @@ dan Halaman untuk review Coding dan Icon
 
 
 Link Donasi Varrdump programing : https://saweria.co/varrdump
+
+Link Youtube Review : 
+https://www.youtube.com/watch?v=mawN6bSILEk&t=253s
